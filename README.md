@@ -1,1 +1,1 @@
-# virgin-coin
+# virgin coin
